@@ -17,7 +17,4 @@
 ![icon4](https://github.com/user-attachments/assets/6f3d5d2e-4fdb-4173-9821-223dfb17c7e7)
 ![icon5](https://github.com/user-attachments/assets/990d8536-0526-4d5c-98ca-3784d662bd23)
 
-![line](https://github.com/user-attachments/assets/529018e1-aa0f-428e-bf3d-909a0fe40417)
-
-💰 Support Me 
 
