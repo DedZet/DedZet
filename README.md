@@ -21,4 +21,3 @@
 
 💰 Support Me 
 
-![daimanki](https://github.com/user-attachments/assets/529018e1-aa0f-428e-bf3d-909a0fe40417)
